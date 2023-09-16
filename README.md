@@ -1,2 +1,2 @@
 # My-Resume
-Resumen de estudios y experiencia laboral
+Resumen de estudios, experiencia laboral, hobbies e idiomas
